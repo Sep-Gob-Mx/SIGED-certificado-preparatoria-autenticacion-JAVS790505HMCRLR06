@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-JAVS790505HMCRLR06
+JAVS790505HMCRLR06
